@@ -1,0 +1,1 @@
+identificador-area-desmatada
